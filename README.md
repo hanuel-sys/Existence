@@ -1,2 +1,0 @@
-# Existence
-Proof of God
